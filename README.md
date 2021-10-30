@@ -1,0 +1,2 @@
+# praksismik_uts
+UTS PRAK SISMIK_NUR ROKHMAN_0059_B2
